@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 ### I'm Gia Ninh or you could call me Aaron 😁
 - 🍀 I fond of researching, reading, music, and traveling
 - 🌱 I'm currently interning at AI Valley, a hub that houses numerous leading companies, including FPT Software, as part of my studies in Artificial Intelligence at FPT University
-- 📫 How to reach me: anaaroncohen@gmail.com
+- 📫 How to reach me: aaron89.workplace@gmail.com
